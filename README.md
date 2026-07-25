@@ -1,0 +1,1 @@
+# auto-rain-cash-hunter
